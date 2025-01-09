@@ -1,2 +1,2 @@
 # wallpapers
-My personal wallpaper collection over the years
+My personal wallpaper collection
